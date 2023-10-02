@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **brijeshkumar377140@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1NkDikq_6wKlXSMyLRO7wwKI3p4rHdQCw/view?usp=sharing](https://drive.google.com/file/d/1NkDikq_6wKlXSMyLRO7wwKI3p4rHdQCw/view?usp=sharing)
+- 📄 Know about my experiences [Click](https://drive.google.com/file/d/18S7yaN5Qr0Qock4fathpt8bsVcUr1chk/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am Funny**
 
