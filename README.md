@@ -1,4 +1,4 @@
-|[logo](https://github.com/BRIJESH6063/BRIJESH6063/blob/main/web.png)
+![logo](https://github.com/BRIJESH6063/BRIJESH6063/blob/main/web.png)
 
 <h1 align="center">Hi 👋, I'm Brijesh Kumar Yadav</h1>
 <h3 align="center">A passionate python coder and full stack developer from India</h3>
